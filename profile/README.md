@@ -1,6 +1,6 @@
 ## See Energy !!!
 
-### Synergy
+### Synergy Inc.
 
 **https://sngy.io**
 
